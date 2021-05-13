@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @thisguysme9505
-- 👀 I’m interested in ...drug smuggling investigation 
+- 👀 I’m interested in backgrounds  
 - 🌱 I’m currently learning ...life/health insurance
 - 💞️ I’m looking to collaborate on ...anything 
 - 📫 How to reach me ...8303990483
